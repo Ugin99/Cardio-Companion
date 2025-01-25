@@ -1,1 +1,1 @@
-# Heartily
+# Cardio Companion
